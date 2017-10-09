@@ -6,6 +6,9 @@
 
 ## Terrains
 
+## Music
+1. [Jagadananda Karaka Tutorial - Vidya Subramanian](https://www.youtube.com/watch?v=LpKNWHH8j_k)
+
 #### Miscellaneous
 
 1. [Markdown Syntax][2]
