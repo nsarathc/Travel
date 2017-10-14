@@ -7,7 +7,11 @@
 ## Terrains
 
 ## Music
-1. [Jagadananda Karaka Tutorial - Vidya Subramanian](https://www.youtube.com/watch?v=LpKNWHH8j_k)
+1.  [Jagadananda Karaka Tutorial - Vidya Subramanian](https://www.youtube.com/watch?v=LpKNWHH8j_k)
+1.  [Narayana Hrudaya Stotram](https://www.youtube.com/watch?v=FTLTrtln6ok)
+1.  [Sri Stuti with Translation](https://www.youtube.com/watch?v=PabJWgRJQ7M)
+1.  [Sri Raghu Veera Gadyam](https://www.youtube.com/watch?v=xx8whb7wiUM)
+1.  [Sri Ranganadha Gadyam](https://www.youtube.com/watch?v=xx8whb7wiUM)
 
 #### Miscellaneous
 
