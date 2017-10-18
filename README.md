@@ -12,6 +12,7 @@
 1.  [Sri Stuti with Translation](https://www.youtube.com/watch?v=PabJWgRJQ7M)
 1.  [Sri Raghu Veera Gadyam](https://www.youtube.com/watch?v=xx8whb7wiUM)
 1.  [Sri Ranganadha Gadyam](https://www.youtube.com/watch?v=xx8whb7wiUM)
+1.  [Mokshamu Galadaa... Fusion, Bombay S Jayashree](https://www.youtube.com/watch?v=8eBoC5mgt0c)
 
 #### Miscellaneous
 
