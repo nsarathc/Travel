@@ -7,12 +7,28 @@
 ## Terrains
 
 ## Music
+
+#### Saints
+
+1.  [Sri Sri Sri H H Tridandi Sriman Narayana Chinna Jeeyar Swamiji](https://pedia.desibantu.com/chinna-jeeyar-swamiji/)
+
+#### Unclassified
+
 1.  [Jagadananda Karaka Tutorial - Vidya Subramanian](https://www.youtube.com/watch?v=LpKNWHH8j_k)
 1.  [Narayana Hrudaya Stotram](https://www.youtube.com/watch?v=FTLTrtln6ok)
 1.  [Sri Stuti with Translation](https://www.youtube.com/watch?v=PabJWgRJQ7M)
 1.  [Sri Raghu Veera Gadyam](https://www.youtube.com/watch?v=xx8whb7wiUM)
 1.  [Sri Ranganadha Gadyam](https://www.youtube.com/watch?v=xx8whb7wiUM)
 1.  [Mokshamu Galadaa... Fusion, Bombay S Jayashree](https://www.youtube.com/watch?v=8eBoC5mgt0c)
+
+#### Carnatic Classical Lyrics
+
+1.  [Jo Jo Rama : Lullaby to Lord Sri Rama](https://pedia.desibantu.com/jo-jo-rama/)
+1.  [Vara Leela Gaana Lola](https://pedia.desibantu.com/varaleela-gaanalola/)
+
+#### Carnatic Classical Instrumentals
+
+1.  [Guruvayurappane... Mandolin U Srinivas](https://www.youtube.com/watch?v=REkUbM7erIw)
 
 #### Miscellaneous
 
