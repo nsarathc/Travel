@@ -6,6 +6,10 @@
 
 ## Terrains
 
+## Literature
+
+1.  [Sri Manohara - Suraarchita Sindhu Gambheera ::: Narasimha Sathakam](https://pedia.desibantu.com/srimanohara-suraarchitha/)
+
 ## Music
 
 #### Saints
