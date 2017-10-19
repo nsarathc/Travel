@@ -3,6 +3,9 @@
 ## Spiritual Locations
 
 1. [Belur Chenna Kesava Swamy Temple - Visual Highlights][1]
+1. Sri Rangam
+    1. [SVBC](https://www.youtube.com/watch?v=--KuvEfRECY)
+    1. [E TV Teertha Yathra](https://www.youtube.com/watch?v=T1BIAjLXA94)
 
 ## Terrains
 
