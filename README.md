@@ -41,6 +41,18 @@
 
 1.  [Guruvayurappane... Mandolin U Srinivas](https://www.youtube.com/watch?v=REkUbM7erIw)
 
+#### Homeopathy
+
+##### First Aid
+
+1.  [Homeopathic Emergency Remedy Guide](http://www.atlantaclassicalhomeopathy.com/emergnecyremedy.htm)
+
+##### Injuries
+
+1.  [Ruta Graveolens](http://www.homeopathyforhealth.net/2010/02/01/ruta-graveolens-a-homeopathic-first-aid-remedy/)
+1.  [Bellis Perennis](http://www.homeopathyforhealth.net/2012/10/24/bellis-perennis/)
+
+
 #### Miscellaneous
 
 1. [Markdown Syntax][2]
