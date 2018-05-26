@@ -29,6 +29,7 @@
 1.  [Sri Ranganadha Gadyam](https://www.youtube.com/watch?v=xx8whb7wiUM)
 1.  [Mokshamu Galadaa... Fusion, Bombay S Jayashree](https://www.youtube.com/watch?v=8eBoC5mgt0c)
 1.  [Sri Narasimha Vaibhavam](https://www.youtube.com/watch?v=2k3X9YqUHIY)
+1.  [Nava Narasimha Vaibhavam](https://www.youtube.com/watch?v=5QnIjc4CN1M)
 1.  [Sri Lakshmi Narasimha Stotram](https://www.youtube.com/watch?v=GthHP3NDCZo)
 
 
