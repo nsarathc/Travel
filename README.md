@@ -52,6 +52,7 @@
 
 1.  [Ruta Graveolens](http://www.homeopathyforhealth.net/2010/02/01/ruta-graveolens-a-homeopathic-first-aid-remedy/)
 1.  [Bellis Perennis](http://www.homeopathyforhealth.net/2012/10/24/bellis-perennis/)
+1.  [Symphytum Officinale](http://www.homeopathyforhealth.net/2010/02/16/symphytum-officinale-a-homeopathic-first-aid-remedy/)
 
 
 #### Miscellaneous
